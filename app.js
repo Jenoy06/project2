@@ -1,1 +1,1 @@
-// What is going on?
+// What the hell is going on?
